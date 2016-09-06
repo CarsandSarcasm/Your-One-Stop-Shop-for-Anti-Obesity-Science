@@ -11,7 +11,7 @@ A fully achived list of articles, studies, stories, and [facts](https://i.sli.mg
 
  - [Kids are getting "double diabetes", where they get both type 1 & 2 due to having irresponsible parents.](https://archive.is/cDiME)
 
- - [Early onset of puberty due to childhood obesity robs children of years of their childhood](https://archive.is/K6y1P)
+ - [Early onset of puberty due to childhood obesity robs children of years of their childhood.](https://archive.is/K6y1P)
 
  - [Maternal obesity damages the fetus' DNA, shortens its telomeres, and promises it a shorter lifespan.](https://archive.is/zV0Yy)
 
@@ -107,7 +107,7 @@ A fully achived list of articles, studies, stories, and [facts](https://i.sli.mg
 
  - [Intelligence decreases as weight increases.](https://archive.is/jflLn)
 
- - [People naturally find obesity disgusting](https://i.sli.mg/fmsifb.png)
+ - [People naturally find obesity disgusting.](https://i.sli.mg/fmsifb.png)
 
  - [High saturated fat diet causes brain immune cells to consume neuron connections.](https://archive.is/4v8Vv)
 
@@ -129,13 +129,13 @@ A fully achived list of articles, studies, stories, and [facts](https://i.sli.mg
 
  - [Maintaining an active lifestyle slows cognitive decline.](https://archive.is/0rynP)
 
- - Stupidity leads to obesity rather than obesity leading to stupidity [1 of 6](https://sli.mg/bmRXBn) [2 of 6](https://sli.mg/kvrBfB) [3 of 6](https://sli.mg/KJpaS3) [4 of 6](https://sli.mg/9P8SAo) [5 of 6](https://sli.mg/pZh4XL) [6 of 6](https://sli.mg/QvUV6X)
+ - Stupidity leads to obesity rather than obesity leading to stupidity [1 of 6](https://sli.mg/bmRXBn) [2 of 6](https://sli.mg/kvrBfB) [3 of 6](https://sli.mg/KJpaS3) [4 of 6](https://sli.mg/9P8SAo) [5 of 6](https://sli.mg/pZh4XL) [6 of 6](https://sli.mg/QvUV6X).
 
  - [Obesity and shitty diet leads to reduced memory inhibition.](https://web.archive.org/web/20160717230541/https://www.sciencedaily.com/releases/2016/07/160712092401.htm)
 
  - [Relationship between BMI and moral disapproval rating for ethical reasons.]( https://archive.is/JSKGl)
 
- - [Brains of obese people are 10 years older than lean people of the same age]( https://archive.is/uRvuR)
+ - [Brains of obese people are 10 years older than lean people of the same age.]( https://archive.is/uRvuR)
 
  - [Obese people have greater chance of brain tumours.]( http://swagxp.com/2015/09/861-obesed-people-have-more-chances-of-brain-tumour/)
 
@@ -145,9 +145,9 @@ A fully achived list of articles, studies, stories, and [facts](https://i.sli.mg
 
 **General health related**
 
- - [Obesity shortens life span regardless of race](https://archive.is/fTW0q)
+ - [Obesity shortens life span regardless of race.](https://archive.is/fTW0q)
 
- - [Being “fit” doesn’t cancel out being fat](https://archive.is/bI1vG)
+ - [Being “fit” doesn’t cancel out being fat.](https://archive.is/bI1vG)
 
  - [Obesity increases oestrogen in men, not in women.](https://archive.is/QtLOa)
 
@@ -165,9 +165,9 @@ A fully achived list of articles, studies, stories, and [facts](https://i.sli.mg
 
  - [Obesity passes smoking as America's top killer.](https://archive.is/EZAKZ)
 
- - [Obesity impairs immune function](https://archive.is/qJuhj)
+ - [Obesity impairs immune function.](https://archive.is/qJuhj)
 
- - [Obesity weakens immune system](https://archive.is/18OSE)
+ - [Obesity weakens immune system.](https://archive.is/18OSE)
 
  - [Obesity is responsible for 18% of deaths.](https://archive.is/x99Iu)
 
