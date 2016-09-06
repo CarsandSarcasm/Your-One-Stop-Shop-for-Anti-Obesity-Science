@@ -1,5 +1,5 @@
 # Your-One-Stop-Shop-for-Anti-Obesity-Science
-A fully achived list of articles, studies, stories, and [facts](https://i.sli.mg/VrOAs7.webm) providing an objective and comprehensive argument against any and all fatlogic.
+A fully achived and ever expanding list of articles, studies, stories, and [facts](https://i.sli.mg/VrOAs7.webm) providing an objective and comprehensive argument against any and all fatlogic.
 
 **Children Related**
 
