@@ -137,8 +137,6 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Brains of obese people are 10 years older than lean people of the same age.]( https://archive.is/uRvuR)
 
- - [Obese people have greater chance of brain tumours.]( http://swagxp.com/2015/09/861-obesed-people-have-more-chances-of-brain-tumour/)
-
  - [Obesity breaks down brain barrier and reduces function.](https://archive.is/4pg1u)
 
  - [Greater weight linked to lower IQ.](https://archive.is/QhgBU)
