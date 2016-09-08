@@ -77,6 +77,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [1/3 of British kids leave primary school obese.](https://archive.is/md26s)
 
+ - [Overweight kids show different eating patterns and use sauces due to chewing function impairment.](https://archive.is/zDQJx)
+
 **Brain and behaviour Related**
 
  - [Plus sized models lead to increased consumption of unhealthy foods.](https://archive.is/vFf6A)
@@ -141,6 +143,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Greater weight linked to lower IQ.](https://archive.is/QhgBU)
 
+ - [Obese people have greater chance of brain tumours.]( http://swagxp.com/2015/09/861-obesed-people-have-more-chances-of-brain-tumour/)
+
 **General health related**
 
  - [Obesity shortens life span regardless of race.](https://archive.is/fTW0q)
@@ -155,9 +159,11 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [No such thing as healthy obesity 3.](https://archive.is/onSQ2)
 
- - [No such thing as healthy obesity 4.]( https://archive.is/hWKln)
+ - [No such thing as healthy obesity 4.](https://archive.is/hWKln)
 
  - [No such thing as healthy obesity 5.](https://web.archive.org/web/20160819052936/https://www.sciencedaily.com/releases/2016/08/160818131127.htm)
+
+ - [No such thing as healthy obesity 6.](https://archive.is/8Z5XI)
 
  - ["Healthy obese linked to increased risk of heart attack.](https://archive.is/OYZZW)
 
@@ -298,3 +304,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obese parents starve and punish a child with hotdog shakes.](https://archive.is/zU4yu)
 
  - [Cremation of obese man causes crematorium to catch fire.](https://archive.is/iQT8E)
+
+ - [13 year old girl dies at 680lb.]( https://archive.is/FNqhc)
