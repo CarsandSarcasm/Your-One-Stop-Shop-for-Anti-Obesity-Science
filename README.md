@@ -165,6 +165,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [No such thing as healthy obesity 6.](https://archive.is/8Z5XI)
 
+ - [No such thing as healthy obesity 7.](https://archive.is/lPSlr)
+
  - ["Healthy obese linked to increased risk of heart attack.](https://archive.is/OYZZW)
 
  - [Obesity passes smoking as America's top killer.](https://archive.is/EZAKZ)
