@@ -209,6 +209,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Excess weight linked to 8 types of cancer.](https://archive.is/yHrmM)
 
+  - [Obesity linked to 13 types of cancer.](https://archive.is/Xs9Yu)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
