@@ -293,6 +293,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Worldwide summary of health and economic effect of obesity.](https://archive.is/D9rq3)
 
+ - [Obesity gene is carried by only 16% of the population, accounts for only 3kg, and poses no hindrance to weight loss.](https://archive.is/UZUQu)
+
 **WTF Stories**
 
  - [Obese man kills donkey by sitting on and crushing it.](https://archive.is/AOOn3)
