@@ -295,6 +295,10 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obesity gene is carried by only 16% of the population, accounts for only 3kg, and poses no hindrance to weight loss.](https://archive.is/UZUQu)
 
+ - [The BMI scale underestimates obesity.](https://archive.is/u9v8s)
+
+ - [Genetic predisposition plays no role in ease of weight loss.](https://archive.is/1dQrb)
+
 **WTF Stories**
 
  - [Obese man kills donkey by sitting on and crushing it.](https://archive.is/AOOn3)
