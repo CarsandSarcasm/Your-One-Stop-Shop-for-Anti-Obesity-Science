@@ -79,6 +79,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Overweight kids show different eating patterns and use sauces due to chewing function impairment.](https://archive.is/zDQJx)
 
+ - [Obese grandfathers can pass on obesity genes for generations.](https://web.archive.org/web/20160929225427/https://www.sciencedaily.com/releases/2016/07/160718110933.htm)
+
 **Brain and behaviour Related**
 
  - [Plus sized models lead to increased consumption of unhealthy foods.](https://archive.is/vFf6A)
@@ -296,6 +298,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [The BMI scale underestimates obesity.](https://archive.is/u9v8s)
 
  - [Genetic predisposition plays no role in ease of weight loss.](https://archive.is/1dQrb)
+ 
+ - [Fat dogs most likely to be owned by fat people.](https://archive.is/zAc7e)
 
 **WTF Stories**
 
@@ -312,5 +316,7 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obese parents starve and punish a child with hotdog shakes.](https://archive.is/zU4yu)
 
  - [Cremation of obese man causes crematorium to catch fire.](https://archive.is/iQT8E)
-
+ 
  - [13 year old girl dies at 680lb.]( https://archive.is/FNqhc)
+ 
+ - [Fat woman starved dog to death.](https://archive.is/Sf68J)
