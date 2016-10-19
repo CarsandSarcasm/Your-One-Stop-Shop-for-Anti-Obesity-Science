@@ -15,6 +15,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Maternal obesity damages the fetus' DNA, shortens its telomeres, and promises it a shorter lifespan.](https://archive.is/zV0Yy)
 
+ - [Maternal obesity damages the fetus' DNA, shortens its telomeres, and promises it a shorter lifespan 2.](https://archive.is/KGLwL)
+
  - [Obesity hypertension in children.](https://archive.is/AVe6X)
 
  - [Hypertension in children.](https://archive.is/AVe6X)
@@ -146,6 +148,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Greater weight linked to lower IQ.](https://archive.is/QhgBU)
 
  - [Obese people have greater chance of brain tumours.]( http://swagxp.com/2015/09/861-obesed-people-have-more-chances-of-brain-tumour/)
+
+ - [Obesity associated with memory deficits in young and middle aged adults.](https://archive.is/BqSON)
 
 **General health related**
 
@@ -302,6 +306,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Genetic predisposition plays no role in ease of weight loss.](https://archive.is/1dQrb)
  
  - [Fat dogs most likely to be owned by fat people.](https://archive.is/zAc7e)
+
+ - [Obese drivers are 80% more likely to die in a car crash.](https://archive.is/YDmpB)
 
 **WTF Stories**
 
