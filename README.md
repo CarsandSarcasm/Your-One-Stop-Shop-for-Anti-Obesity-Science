@@ -151,6 +151,10 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obesity associated with memory deficits in young and middle aged adults.](https://archive.is/BqSON)
 
+ - [Obesity leads to increased infalamation which affects brain function and cognition.](https://archive.is/O76Qp)
+
+ - [Obesity negatively affects outcome in bipolar disorder.](https://archive.is/8apXq)
+
 **General health related**
 
  - [Obesity shortens life span regardless of race.](https://archive.is/fTW0q)
@@ -328,3 +332,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [13 year old girl dies at 680lb.]( https://archive.is/FNqhc)
  
  - [Fat woman starved dog to death.](https://archive.is/Sf68J)
+
+ - [Obese babysitter dies and collapses on baby, killing it.](http://archive.is/m1Phx)
