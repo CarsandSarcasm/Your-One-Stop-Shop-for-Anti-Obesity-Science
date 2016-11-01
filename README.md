@@ -155,6 +155,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obesity negatively affects outcome in bipolar disorder.](https://archive.is/8apXq)
 
+ - [Effect of obesity on the brain.](https://archive.is/blneY)
+
 **General health related**
 
  - [Obesity shortens life span regardless of race.](https://archive.is/fTW0q)
@@ -257,6 +259,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Medical and economic effect of the diabetes problem in Australia.](https://archive.is/FhEFV)
 
+ - [Higher BMIs linked to increased worker conpensation costs.](http://archive.is/IDZLe)
+
 **Miscellaneous**
 
  - [BMI scale underestimate obesity.](https://archive.is/u9v8s)
@@ -304,8 +308,6 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Worldwide summary of health and economic effect of obesity.](https://archive.is/D9rq3)
 
  - [Obesity gene is carried by only 16% of the population, accounts for only 3kg, and poses no hindrance to weight loss.](https://archive.is/UZUQu)
-
- - [The BMI scale underestimates obesity.](https://archive.is/u9v8s)
 
  - [Genetic predisposition plays no role in ease of weight loss.](https://archive.is/1dQrb)
  
