@@ -83,6 +83,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obese grandfathers can pass on obesity genes for generations.](https://web.archive.org/web/20160929225427/https://www.sciencedaily.com/releases/2016/07/160718110933.htm)
 
+ - [Psychological consequences of childhood obesity.](https://archive.is/cefXF)
+
 **Brain and behaviour Related**
 
  - [Plus sized models lead to increased consumption of unhealthy foods.](https://archive.is/vFf6A)
@@ -156,6 +158,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obesity negatively affects outcome in bipolar disorder.](https://archive.is/8apXq)
 
  - [Effect of obesity on the brain.](https://archive.is/blneY)
+
+ - [Obesity associated with reduced white and grey matter integrity.](https://archive.is/CQOkY)
 
 **General health related**
 
