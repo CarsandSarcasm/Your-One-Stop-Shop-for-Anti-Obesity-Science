@@ -69,7 +69,7 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Overweight fathers produce children with increased risk of breast cancer.]( https://archive.is/jL6jh)
 
- - [Breast Milk from obese mothers has pro-inflamatory properties and decreased neuroprotective factors.]( https://archive.is/0D9vl)
+ - [Breast Milk from obese mothers has pro-inflamatory properties and decreased neuroprotective factors.](https://archive.is/0D9vl)
 
  - [Rate of death during birth increasing with America's increase in obesity related diseases.](http://archive.is/FcrCH)
 
