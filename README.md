@@ -24,6 +24,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obesity and earlier puberty.](https://archive.is/0yzwj)
 
  - [Obesity lowers children's IQ.](https://archive.is/L1geA)
+ 
+ - [Obesity lowers children's IQ 2.](https://archive.is/fPe3H)
 
  - [Obese mothers give birth to less intelligent children.](https://archive.is/M2sB4)
 
@@ -33,7 +35,7 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Childhood obesity and "double diabetes.](https://archive.is/cDiME)
 
- - [High fat diet during pregnancy harms fetus' stem cells.](https://archive.is/XmCTo)
+ - [High fat diet during pregnancy harms fpetus' stem cells.](https://archive.is/XmCTo)
 
  - [Obese kids are more susceptible to food commercials.](https://archive.is/u7DG6)
 
@@ -84,6 +86,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obese grandfathers can pass on obesity genes for generations.](https://web.archive.org/web/20160929225427/https://www.sciencedaily.com/releases/2016/07/160718110933.htm)
 
  - [Psychological consequences of childhood obesity.](https://archive.is/cefXF)
+
+ - [9/10 mothers of overweight children do not see the problem.](https://archive.is/3Lp7F)
 
 **Brain and behaviour Related**
 
@@ -153,13 +157,15 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obesity associated with memory deficits in young and middle aged adults.](https://archive.is/BqSON)
 
- - [Obesity leads to increased infalamation which affects brain function and cognition.](https://archive.is/O76Qp)
+ - [Obesity leads to increased infalammation which affects brain function and cognition.](https://archive.is/O76Qp)
 
  - [Obesity negatively affects outcome in bipolar disorder.](https://archive.is/8apXq)
 
  - [Effect of obesity on the brain.](https://archive.is/blneY)
 
  - [Obesity associated with reduced white and grey matter integrity.](https://archive.is/CQOkY)
+
+ - [Obese people lose IQ through "Homer Simpson effect."](http://archive.is/Cj34k)
 
 **General health related**
 
@@ -263,7 +269,9 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Medical and economic effect of the diabetes problem in Australia.](https://archive.is/FhEFV)
 
- - [Higher BMIs linked to increased worker conpensation costs.](http://archive.is/IDZLe)
+ - [Higher BMIs linked to increased worker compensation costs.](http://archive.is/IDZLe)
+
+ - [Undertaker suffers serious injuries after obese corpse falls.](https://archive.is/D9cvv)
 
 **Miscellaneous**
 
@@ -318,6 +326,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Fat dogs most likely to be owned by fat people.](https://archive.is/zAc7e)
 
  - [Obese drivers are 80% more likely to die in a car crash.](https://archive.is/YDmpB)
+
+ - [Nearly half of America's overweight don't realise they are overweight.](https://archive.is/22kyp)
 
 **WTF Stories**
 
