@@ -89,6 +89,10 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [9/10 mothers of overweight children do not see the problem.](https://archive.is/3Lp7F)
 
+ - [Children of fat parents are slow learners and at higher risk of being stupid, socially incompetent, and clumsy.](http://archive.is/AX8PY)
+
+ - [Children of obese parents at risk of development delays.](https://archive.is/cWaW0)
+
 **Brain and behaviour Related**
 
  - [Plus sized models lead to increased consumption of unhealthy foods.](https://archive.is/vFf6A)
@@ -167,6 +171,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obese people lose IQ through "Homer Simpson effect."](http://archive.is/Cj34k)
 
+ - [Weight loss associated with improvements in cognitive function.](https://archive.is/7icEr)
+
 **General health related**
 
  - [Obesity shortens life span regardless of race.](https://archive.is/fTW0q)
@@ -234,7 +240,9 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obesity linked to 13 types of cancer.](https://archive.is/Xs9Yu)
 
  - [Obesity responsible for 7 out of every 10 deaths. Life expectancy over past 10 years has dropped by a decade.]( https://archive.is/WZSMx)
- 
+
+ - [Obesity is more strongly linked to endometrial cancer than any other page [1](https://archive.is/W7SSB) and [2](https://archive.is/IkFsI).
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
@@ -350,3 +358,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Fat woman starved dog to death.](https://archive.is/Sf68J)
 
  - [Obese babysitter dies and collapses on baby, killing it.](http://archive.is/m1Phx)
+
+ - [Obese co-sleeper crushes second baby.](http://archive.is/xSDkO)
