@@ -173,6 +173,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Weight loss associated with improvements in cognitive function.](https://archive.is/7icEr)
 
+ - [Memory exercises have almost no effect on overweight adults](https://archive.is/YFXrd)
+
 **General health related**
 
  - [Obesity shortens life span regardless of race.](https://archive.is/fTW0q)
@@ -242,6 +244,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obesity responsible for 7 out of every 10 deaths. Life expectancy over past 10 years has dropped by a decade.]( https://archive.is/WZSMx)
 
  - [Obesity is more strongly linked to endometrial cancer than any other page [1](https://archive.is/W7SSB) and [2](https://archive.is/IkFsI).
+
+ - [Sedentary lifestyles shorten telomeres and accelerate aging.](https://archive.is/yRyma)
 
 **Effects on others**
 
