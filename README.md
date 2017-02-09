@@ -285,6 +285,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Undertaker suffers serious injuries after obese corpse falls.](https://archive.is/D9cvv)
 
+ - [The cost of obesity on businesses.](http://archive.is/wubn1)
+
 **Miscellaneous**
 
  - [BMI scale underestimate obesity.](https://archive.is/u9v8s)
@@ -364,3 +366,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obese babysitter dies and collapses on baby, killing it.](http://archive.is/m1Phx)
 
  - [Obese co-sleeper crushes second baby.](http://archive.is/xSDkO)
+
+ - [Obese man kills 6 year old by sitting on it as a punishment.](http://archive.is/iKojT)
