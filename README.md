@@ -368,3 +368,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obese co-sleeper crushes second baby.](http://archive.is/xSDkO)
 
  - [Obese man kills 6 year old by sitting on it as a punishment.](http://archive.is/iKojT)
+
+ - [220kg man falls and requires 20 people and over 2 hours to pick up.](https://archive.is/0n52X)
