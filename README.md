@@ -247,6 +247,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Sedentary lifestyles shorten telomeres and accelerate aging.](https://archive.is/yRyma)
 
+ - [Obesity reprograms muscle stem cells leading to reduced muscle mass and impaired metabolism.](http://archive.is/bynbA)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
