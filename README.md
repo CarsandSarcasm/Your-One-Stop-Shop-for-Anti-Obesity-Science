@@ -117,6 +117,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Being fat makes you stupid 2.](https://archive.is/zvZzQ)
 
+ - [Being fat makes you stupid 3.](https://archive.is/JWtYL)
+
  - [Obesity linked to more sexually dangerous behaviour.](https://archive.is/C0y8l)
 
  - [Overweight wait staff cause people to eat more.](https://archive.is/JeRQg)
@@ -248,6 +250,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Sedentary lifestyles shorten telomeres and accelerate aging.](https://archive.is/yRyma)
 
  - [Obesity reprograms muscle stem cells leading to reduced muscle mass and impaired metabolism.](http://archive.is/bynbA)
+
+ - [Obesity linked to elevated risk of ovarian cancer.](https://web.archive.org/web/20150910055954/http://www.sciencedaily.com/releases/2009/01/090105090841.htm)
 
 **Effects on others**
 
