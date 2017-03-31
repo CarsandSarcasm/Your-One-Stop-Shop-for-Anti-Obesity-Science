@@ -199,6 +199,10 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [No such thing as healthy obesity 7.](https://archive.is/lPSlr)
 
+ - [No such thing as healthy obesity 8.](https://archive.is/qZuUb)
+
+ - [No such thing as healthy obesity 9.](https://archive.is/qGz2V)
+
  - ["Healthy obese linked to increased risk of heart attack.](https://archive.is/OYZZW)
 
  - [Obesity passes smoking as America's top killer.](https://archive.is/EZAKZ)
@@ -348,6 +352,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obese drivers are 80% more likely to die in a car crash.](https://archive.is/YDmpB)
 
  - [Nearly half of America's overweight don't realise they are overweight.](https://archive.is/22kyp)
+
+ - [You can't outrun a bad diet.](http://bjsm.bmj.com/content/49/15/967.long)
 
 **WTF Stories**
 
