@@ -93,6 +93,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Children of obese parents at risk of development delays.](https://archive.is/cWaW0)
 
+ - [Obesity during pregnancy drastically increases risk of epilepsy.](https://archive.is/Ld7ud)
+
 **Brain and behaviour Related**
 
  - [Plus sized models lead to increased consumption of unhealthy foods.](https://archive.is/vFf6A)
@@ -257,6 +259,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obesity linked to elevated risk of ovarian cancer.](https://web.archive.org/web/20150910055954/http://www.sciencedaily.com/releases/2009/01/090105090841.htm)
 
+ - [Obesity causes inflammation  that helps cancer grow.](https://archive.is/2JV0W)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
@@ -296,6 +300,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Undertaker suffers serious injuries after obese corpse falls.](https://archive.is/D9cvv)
 
  - [The cost of obesity on businesses.](http://archive.is/wubn1)
+
+ - [Weight loss for obese people causes an improvement in job attendance.](https://archive.is/4XSw4)
 
 **Miscellaneous**
 
