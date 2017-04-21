@@ -179,6 +179,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Memory exercises have almost no effect on overweight adults](https://archive.is/YFXrd)
 
+ - [Impulsivity linked to obesity.](http://archive.is/qytIq)
+
 **General health related**
 
  - [Obesity shortens life span regardless of race.](https://archive.is/fTW0q)
