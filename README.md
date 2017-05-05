@@ -367,6 +367,10 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [You can't outrun a bad diet.](http://bjsm.bmj.com/content/49/15/967.long)
 
+ - [Congenitally blind men prefer a low waist:hip ratio.](https://archive.is/i0dyC)
+
+ - [People of all ethnicities  prefer thin over fat](https://archive.is/I73QD)
+
 **WTF Stories**
 
  - [Obese man kills donkey by sitting on and crushing it.](https://archive.is/AOOn3)
