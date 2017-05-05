@@ -180,6 +180,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Memory exercises have almost no effect on overweight adults](https://archive.is/YFXrd)
 
  - [Impulsivity linked to obesity.](http://archive.is/qytIq)
+ 
+ - [Obesity combined with diabetes affects brain structure.](https://archive.is/EqwQ3)
 
 **General health related**
 
@@ -280,6 +282,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Economic impact of obesity in the US 2.](https://archive.is/rDBLq)
 
  - [Economic impact of obesity in the US 3.]( https://archive.is/tlJ9R)
+ 
+ - [Economic impact of obesity in the US 4.](http://archive.is/q466y)
 
  - [Obesity linked to more sick leave being taken.](https://archive.is/l5cKS)
 
@@ -378,7 +382,9 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obese parents starve and punish a child with hotdog shakes.](https://archive.is/zU4yu)
 
  - [Cremation of obese man causes crematorium to catch fire.](https://archive.is/iQT8E)
- 
+
+ - [Cremation of another obese man causes crematorium to catch fire.](https://archive.is/3yqKn)
+
  - [13 year old girl dies at 680lb.]( https://archive.is/FNqhc)
  
  - [Fat woman starved dog to death.](https://archive.is/Sf68J)
