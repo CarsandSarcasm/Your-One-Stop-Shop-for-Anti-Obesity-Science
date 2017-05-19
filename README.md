@@ -209,6 +209,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [No such thing as healthy obesity 9.](https://archive.is/qGz2V)
 
+ - [No such thing as healthy obesity 10.](http://archive.is/REiMc)
+
  - ["Healthy obese linked to increased risk of heart attack.](https://archive.is/OYZZW)
 
  - [Obesity passes smoking as America's top killer.](https://archive.is/EZAKZ)
@@ -284,6 +286,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Economic impact of obesity in the US 3.]( https://archive.is/tlJ9R)
  
  - [Economic impact of obesity in the US 4.](http://archive.is/q466y)
+
+ - [Economic impact of obesity in the UK.](https://archive.is/ziWLN)
 
  - [Obesity linked to more sick leave being taken.](https://archive.is/l5cKS)
 
