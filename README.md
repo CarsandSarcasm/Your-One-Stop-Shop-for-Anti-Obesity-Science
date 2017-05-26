@@ -265,7 +265,9 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obesity linked to elevated risk of ovarian cancer.](https://web.archive.org/web/20150910055954/http://www.sciencedaily.com/releases/2009/01/090105090841.htm)
 
- - [Obesity causes inflammation  that helps cancer grow.](https://archive.is/2JV0W)
+ - [Obesity causes inflammation that helps cancer grow.](https://archive.is/2JV0W)
+
+ - [Colon cancer survivors who follow healthy habits are 42% less likely to die.](http://archive.is/v8NCY)
 
 **Effects on others**
 
@@ -288,6 +290,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Economic impact of obesity in the US 4.](http://archive.is/q466y)
 
  - [Economic impact of obesity in the UK.](https://archive.is/ziWLN)
+
+ - [Economic impact of obesity in the UK 2.](http://archive.is/biAGH)
 
  - [Obesity linked to more sick leave being taken.](https://archive.is/l5cKS)
 
