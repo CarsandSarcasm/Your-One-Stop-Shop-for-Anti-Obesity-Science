@@ -293,6 +293,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Economic impact of obesity in the UK 2.](http://archive.is/biAGH)
 
+ - [Higher BMI tied to bigger healthcare costs. 22%, 45%, and 50% higher as BMI increases.](http://archive.is/pmFe8)
+
  - [Obesity linked to more sick leave being taken.](https://archive.is/l5cKS)
 
  - [Obese people restricted escape from September 11 bombings.](https://archive.is/yJumF)
@@ -378,6 +380,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Congenitally blind men prefer a low waist:hip ratio.](https://archive.is/i0dyC)
 
  - [People of all ethnicities  prefer thin over fat](https://archive.is/I73QD)
+
+ - [Premature celebration of intentions leads to less intense action towards them.](https://archive.is/EuYoJ)
 
 **WTF Stories**
 
