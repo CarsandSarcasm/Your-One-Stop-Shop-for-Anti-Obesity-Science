@@ -95,6 +95,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obesity during pregnancy drastically increases risk of epilepsy.](https://archive.is/Ld7ud)
 
+ - [Obese women are more likely to have babies with serious birth defects.](https://archive.is/SsZix)
+
 **Brain and behaviour Related**
 
  - [Plus sized models lead to increased consumption of unhealthy foods.](https://archive.is/vFf6A)
@@ -183,6 +185,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  
  - [Obesity combined with diabetes affects brain structure.](https://archive.is/EqwQ3)
 
+ - [Brain-damaging triglycerides can disturb mood.](https://archive.is/MlBZi)
+
 **General health related**
 
  - [Obesity shortens life span regardless of race.](https://archive.is/fTW0q)
@@ -268,6 +272,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obesity causes inflammation that helps cancer grow.](https://archive.is/2JV0W)
 
  - [Colon cancer survivors who follow healthy habits are 42% less likely to die.](http://archive.is/v8NCY)
+
+ - [Increased risk of influenza among vaccinated adults who are obese.](https://archive.is/mHEf0)
 
 **Effects on others**
 
