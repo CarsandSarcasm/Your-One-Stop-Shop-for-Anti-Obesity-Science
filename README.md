@@ -71,7 +71,7 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Overweight fathers produce children with increased risk of breast cancer.]( https://archive.is/jL6jh)
 
- - [Breast Milk from obese mothers has pro-inflamatory properties and decreased neuroprotective factors.](https://archive.is/0D9vl)
+ - [Breast Milk from obese mothers has pro-inflammatory properties and decreased neuroprotective factors.](https://archive.is/0D9vl)
 
  - [Rate of death during birth increasing with America's increase in obesity related diseases.](http://archive.is/FcrCH)
 
@@ -95,7 +95,11 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obesity during pregnancy drastically increases risk of epilepsy.](https://archive.is/Ld7ud)
 
- - [Obese women are more likely to have babies with serious birth defects.](https://archive.is/SsZix)
+ - [Obese women are more likely to have babies with serious birth defects.](https://archive.is/Sj2HD)
+
+ - [Obesity linked to increased knock knees in children.](https://archive.is/SkJNl#selection-1879.11-1879.22)
+
+
 
 **Brain and behaviour Related**
 
@@ -275,6 +279,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Increased risk of influenza among vaccinated adults who are obese.](https://archive.is/mHEf0)
 
+ - [Obesity kills more people than car crashed, terrorism, and Alzheimer's combined.](https://archive.is/0vogE#selection-889.78-889.87)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
@@ -324,6 +330,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [The cost of obesity on businesses.](http://archive.is/wubn1)
 
  - [Weight loss for obese people causes an improvement in job attendance.](https://archive.is/4XSw4)
+
+ - [Effect to business from obese employees.](https://i.imgtc.com/1uEkk1i.png)
 
 **Miscellaneous**
 
@@ -418,3 +426,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obese man kills 6 year old by sitting on it as a punishment.](http://archive.is/iKojT)
 
  - [220kg man falls and requires 20 people and over 2 hours to pick up.](https://archive.is/0n52X)
+
+ - [Man dies of penis cancer because he was too fat for scans.](http://archive.is/DpvKX)
