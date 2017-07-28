@@ -1,5 +1,5 @@
 # Your-One-Stop-Shop-for-Anti-Obesity-Science
-A fully achived and ever expanding list of articles, studies, stories, and [facts](https://i.sli.mg/VrOAs7.webm) providing an objective and comprehensive argument against any and all fatlogic.
+A fully achived and ever expanding list of articles, studies, stories, and [facts](https://i.imgtc.com/nNYEGJm.gif) providing an objective and comprehensive argument against any and all fatlogic.
 
 **Children Related**
 
@@ -99,7 +99,11 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obesity linked to increased knock knees in children.](https://archive.is/SkJNl#selection-1879.11-1879.22)
 
+ - Obese teens have higher risk of colon cancer later in life [page 1](https://archive.is/IxTz8#selection-2687.0-2687.47) and [page 2](https://archive.is/wLTn9)
 
+ - [Children born to mothers with diabetes during pregnancy are at risk of developing attention problems.](https://archive.is/UsnzK#selection-63.0-63.100)
+
+ - [Mothers with low waist:hip ratios and their children have significantly higher cognitive test scores and their children are protected from cognitive decrements.](https://archive.is/cbCLx#selection-1293.665-1293.877)
 
 **Brain and behaviour Related**
 
@@ -190,6 +194,10 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obesity combined with diabetes affects brain structure.](https://archive.is/EqwQ3)
 
  - [Brain-damaging triglycerides can disturb mood.](https://archive.is/MlBZi)
+
+ - [Obesity reduces cognitive and motor functions across the lifespan.](https://archive.is/vJens)
+
+ - [Obese and overweight people are less likely to consider next meal when making portion size decisions](https://archive.is/dYdIz)
 
 **General health related**
 
@@ -396,6 +404,10 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [People of all ethnicities  prefer thin over fat](https://archive.is/I73QD)
 
  - [Premature celebration of intentions leads to less intense action towards them.](https://archive.is/EuYoJ)
+
+ - [Overweight college freshmen under-reported their weight.](https://archive.is/8bdZu)
+
+ - [Obese people across gender and socioeconomic status under-report weight.](https://archive.is/JAyAP)
 
 **WTF Stories**
 
