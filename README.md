@@ -289,6 +289,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obesity kills more people than car crashed, terrorism, and Alzheimer's combined.](https://archive.is/0vogE#selection-889.78-889.87)
 
+ - [Overweight people are more likely to have colon polyps.](https://archive.is/NCBAy#selection-357.0-357.45)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
