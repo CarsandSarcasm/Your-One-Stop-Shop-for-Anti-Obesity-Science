@@ -199,6 +199,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obese and overweight people are less likely to consider next meal when making portion size decisions](https://archive.is/dYdIz)
 
+ - [Use of acceptance cues for larger body types increases unhealthy behaviours.](https://archive.is/UlNJV)
+
 **General health related**
 
  - [Obesity shortens life span regardless of race.](https://archive.is/fTW0q)
@@ -227,7 +229,9 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [No such thing as healthy obesity 10.](http://archive.is/REiMc)
 
- - ["Healthy obese linked to increased risk of heart attack.](https://archive.is/OYZZW)
+ - [No such thing as healthy obesity 11.](https://archive.is/o7OPk)
+
+ - ["Healthy obese" linked to increased risk of heart attack.](https://archive.is/OYZZW)
 
  - [Obesity passes smoking as America's top killer.](https://archive.is/EZAKZ)
 
@@ -403,7 +407,7 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Congenitally blind men prefer a low waist:hip ratio.](https://archive.is/i0dyC)
 
- - [People of all ethnicities  prefer thin over fat](https://archive.is/I73QD)
+ - [People of all ethnicities prefer thin over fat](https://archive.is/I73QD)
 
  - [Premature celebration of intentions leads to less intense action towards them.](https://archive.is/EuYoJ)
 
