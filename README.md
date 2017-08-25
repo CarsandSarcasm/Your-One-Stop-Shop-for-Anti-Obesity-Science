@@ -13,9 +13,9 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Early onset of puberty due to childhood obesity robs children of years of their childhood.](https://archive.is/K6y1P)
 
- - [Maternal obesity damages the fetus' DNA, shortens its telomeres, and promises it a shorter lifespan.](https://archive.is/zV0Yy)
+ - [Maternal obesity damages the foetus' DNA, shortens its telomeres, and promises it a shorter lifespan.](https://archive.is/zV0Yy)
 
- - [Maternal obesity damages the fetus' DNA, shortens its telomeres, and promises it a shorter lifespan 2.](https://archive.is/KGLwL)
+ - [Maternal obesity damages the foetus' DNA, shortens its telomeres, and promises it a shorter lifespan 2.](https://archive.is/KGLwL)
 
  - [Obesity hypertension in children.](https://archive.is/AVe6X)
 
@@ -311,7 +311,7 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Economic impact of obesity in the US 2.](https://archive.is/rDBLq)
 
- - [Economic impact of obesity in the US 3.]( https://archive.is/tlJ9R)
+ - [Economic impact of obesity in the US 3.](https://archive.is/tlJ9R)
  
  - [Economic impact of obesity in the US 4.](http://archive.is/q466y)
 
@@ -320,6 +320,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Economic impact of obesity in the UK 2.](http://archive.is/biAGH)
 
  - [Higher BMI tied to bigger healthcare costs. 22%, 45%, and 50% higher as BMI increases.](http://archive.is/pmFe8)
+
+ - [Healthcare costs of obesity in the US.](https://archive.is/I6zpN)
 
  - [Obesity linked to more sick leave being taken.](https://archive.is/l5cKS)
 
