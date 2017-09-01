@@ -105,6 +105,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Mothers with low waist:hip ratios and their children have significantly higher cognitive test scores and their children are protected from cognitive decrements.](https://archive.is/cbCLx#selection-1293.665-1293.877)
 
+ - [Obese toddlers show signs of heart failure by age 1.](http://web.archive.org/web/20170901011352/http://www.telegraph.co.uk/news/2017/08/30/obese-toddlers-begin-showing-signs-heart-failure-age-one-study/)
+
 **Brain and behaviour Related**
 
  - [Plus sized models lead to increased consumption of unhealthy foods.](https://archive.is/vFf6A)
