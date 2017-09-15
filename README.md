@@ -203,6 +203,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Use of acceptance cues for larger body types increases unhealthy behaviours.](https://archive.is/UlNJV)
 
+ - [Men are 21% more likely to develop diabetes if their wife is obese.](https://archive.is/qqnfl#selection-1403.0-1405.61)
+
 **General health related**
 
  - [Obesity shortens life span regardless of race.](https://archive.is/fTW0q)
