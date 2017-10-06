@@ -299,6 +299,10 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Overweight people are more likely to have colon polyps.](https://archive.is/NCBAy#selection-357.0-357.45)
 
+ - [Obesity responsible for record-breaking number of preventable amputations.](http://archive.is/eGtRU)
+
+ - [40% of cancers linked to excess weight.](https://archive.is/u65Zw)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
