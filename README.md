@@ -361,7 +361,9 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
 **Miscellaneous**
 
- - [BMI scale underestimate obesity.](https://archive.is/u9v8s)
+ - [BMI scale underestimates obesity.](https://archive.is/u9v8s)
+
+ - [BMI scale underestimates obesity 2.](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC2877506/)
 
  - [95% of people do not fail to keep the weight off.](https://archive.is/TyJTK)
 
