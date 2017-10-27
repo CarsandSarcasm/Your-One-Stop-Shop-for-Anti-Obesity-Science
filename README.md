@@ -431,6 +431,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Using "overfat" measurement, 90% of men and 50% of children are obese.](https://archive.is/AOvss#selection-201.0-201.27)
 
+ - [Higher marital quality linked with lower cardiovasular disease risk factors.](https://archive.is/7tzLg)
+
 **WTF Stories**
 
  - [Obese man kills donkey by sitting on and crushing it.](https://archive.is/AOOn3)
