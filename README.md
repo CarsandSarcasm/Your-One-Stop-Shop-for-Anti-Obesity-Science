@@ -33,9 +33,9 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Overweight parents are more likely to fail.](https://archive.is/yq1re)
 
- - [Childhood obesity and "double diabetes.](https://archive.is/cDiME)
+ - [Childhood obesity and "double diabetes."](https://archive.is/cDiME)
 
- - [High fat diet during pregnancy harms fpetus' stem cells.](https://archive.is/XmCTo)
+ - [High fat diet during pregnancy harms foetus' stem cells.](https://archive.is/XmCTo)
 
  - [Obese kids are more susceptible to food commercials.](https://archive.is/u7DG6)
 
@@ -106,6 +106,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Mothers with low waist:hip ratios and their children have significantly higher cognitive test scores and their children are protected from cognitive decrements.](https://archive.is/cbCLx#selection-1293.665-1293.877)
 
  - [Obese toddlers show signs of heart failure by age 1.](http://web.archive.org/web/20170901011352/http://www.telegraph.co.uk/news/2017/08/30/obese-toddlers-begin-showing-signs-heart-failure-age-one-study/)
+
+ - [Increase in joint replacements in children due to obesity.](http://archive.is/JNvsB)
 
 **Brain and behaviour Related**
 
@@ -302,6 +304,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obesity responsible for record-breaking number of preventable amputations.](http://archive.is/eGtRU)
 
  - [40% of cancers linked to excess weight.](https://archive.is/u65Zw)
+
+ - [Obese at greater risk of brittle bones.](https://archive.is/03yoJ)
 
 **Effects on others**
 
