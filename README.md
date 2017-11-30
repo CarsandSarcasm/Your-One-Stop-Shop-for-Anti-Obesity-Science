@@ -307,6 +307,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obese at greater risk of brittle bones.](https://archive.is/03yoJ)
 
+ - [Fat men are at greater risk of infertility.](http://archive.is/WcL33)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
