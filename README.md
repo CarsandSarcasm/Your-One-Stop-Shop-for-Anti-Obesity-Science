@@ -309,6 +309,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Fat men are at greater risk of infertility.](http://archive.is/WcL33)
 
+ - [Health risks increase with BMI. Recommended BMI range is affirmed.](https://web.archive.org/web/20171204173412/http://www.bristol.ac.uk/news/2017/december/bmi-and-mortality.html)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
