@@ -369,6 +369,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Effects of dealing with obese bodies in emergencies.](https://archive.is/O4LsP)
 
+ - [Obese patients injure nursing staff.](http://archive.is/mmE7E)
+
 **Miscellaneous**
 
  - [BMI scale underestimates obesity.](https://archive.is/u9v8s)
