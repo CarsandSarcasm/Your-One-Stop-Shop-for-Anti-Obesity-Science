@@ -209,6 +209,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obesity causes inflammation that mimics and causes depression.](https://archive.is/DivtR)
 
+ - [Poor fitness linked to weaker brain fiber and higher dementia risk.](https://archive.is/PWnuN#selection-2653.0-2653.63)
+
 **General health related**
 
  - [Obesity shortens life span regardless of race.](https://archive.is/fTW0q)
@@ -445,7 +447,11 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Using "overfat" measurement, 90% of men and 50% of children are obese.](https://archive.is/AOvss#selection-201.0-201.27)
 
- - [Higher marital quality linked with lower cardiovasular disease risk factors.](https://archive.is/7tzLg)
+ - [Higher marital quality linked with lower cardiovascular disease risk factors.](https://archive.is/7tzLg)
+
+ - [Obesity linked to long term unemployment.](https://archive.is/9JtY4)
+ 
+ - [Debunking myths about impossibility of weight loss.](https://archive.is/SffOw)
 
 **WTF Stories**
 
