@@ -317,6 +317,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Health risks increase with BMI. Recommended BMI range is affirmed.](https://web.archive.org/web/20171204173412/http://www.bristol.ac.uk/news/2017/december/bmi-and-mortality.html)
 
+ - [Risk of heart disease increased with time spent obese.](https://www.ctvnews.ca/health/the-longer-you-are-obese-the-greater-the-risk-of-heart-disease-study-1.3814166)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
@@ -452,6 +454,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obesity linked to long term unemployment.](https://archive.is/9JtY4)
  
  - [Debunking myths about impossibility of weight loss.](https://archive.is/SffOw)
+
+ - [Weight loss unaffected by genetics. Quality and quantity are all that matters.](https://archive.is/TMPsb)
 
 **WTF Stories**
 
