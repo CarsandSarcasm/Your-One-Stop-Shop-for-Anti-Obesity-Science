@@ -349,6 +349,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obesity linked to more sick leave being taken.](https://archive.is/l5cKS)
 
+ - [Obesity linked to more sick leave being taken 2.](https://archive.is/IJu2f)
+
  - [Obese people restricted escape from September 11 bombings.](https://archive.is/yJumF)
 
  - [Rates of musculoskeletal injuries from overexertion in healthcare occupations are among the highest of all industries.](https://archive.is/J1cFm)
@@ -365,6 +367,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Higher BMIs linked to increased worker compensation costs.](http://archive.is/IDZLe)
 
+ - [Higher BMIs linked to increased worker compensation costs 2.](https://archive.is/Uvvee)
+
  - [Undertaker suffers serious injuries after obese corpse falls.](https://archive.is/D9cvv)
 
  - [The cost of obesity on businesses.](http://archive.is/wubn1)
@@ -376,6 +380,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Effects of dealing with obese bodies in emergencies.](https://archive.is/O4LsP)
 
  - [Obese patients injure nursing staff.](http://archive.is/mmE7E)
+
+ - [Obese workers are less productive and need longer rest breaks.](https://archive.is/uSaOS)
 
 **Miscellaneous**
 
