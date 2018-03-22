@@ -494,3 +494,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [220kg man falls and requires 20 people and over 2 hours to pick up.](https://archive.is/0n52X)
 
  - [Man dies of penis cancer because he was too fat for scans.](http://archive.is/DpvKX)
+
+ - [Bedridden, obese woman found decomposing and crawling with maggots and cockroaches.](https://archive.is/2yyXY#selection-2049.24-2049.94)
