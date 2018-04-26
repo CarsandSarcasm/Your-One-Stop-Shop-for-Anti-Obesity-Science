@@ -429,6 +429,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obesity paradox disproven.]( https://archive.is/OJy9E)
 
+ - [Obesity paradox disproven 2.](https://archive.is/yizR2)
+
  - [Worldwide summary of health and economic effect of obesity.](https://archive.is/D9rq3)
 
  - [Obesity gene is carried by only 16% of the population, accounts for only 3kg, and poses no hindrance to weight loss.](https://archive.is/UZUQu)
@@ -496,3 +498,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Man dies of penis cancer because he was too fat for scans.](http://archive.is/DpvKX)
 
  - [Bedridden, obese woman found decomposing and crawling with maggots and cockroaches.](https://archive.is/2yyXY#selection-2049.24-2049.94)
+
+ - [Sisters aged 6 and 8 undergo gastric surgery due to extreme obesity.](https://archive.is/cLkBG)
