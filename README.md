@@ -319,6 +319,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Risk of heart disease increased with time spent obese.](https://www.ctvnews.ca/health/the-longer-you-are-obese-the-greater-the-risk-of-heart-disease-study-1.3814166)
 
+ - [Poor diet linked to poor gut microbe linked to obesity.](https://archive.is/OXcM8)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
