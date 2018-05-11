@@ -109,6 +109,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Increase in joint replacements in children due to obesity.](http://archive.is/JNvsB)
 
+ - [Obesity can lead to liver damage by age 8.](http://archive.is/p3dTz)
+
 **Brain and behaviour Related**
 
  - [Plus sized models lead to increased consumption of unhealthy foods.](https://archive.is/vFf6A)
@@ -502,3 +504,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Bedridden, obese woman found decomposing and crawling with maggots and cockroaches.](https://archive.is/2yyXY#selection-2049.24-2049.94)
 
  - [Sisters aged 6 and 8 undergo gastric surgery due to extreme obesity.](https://archive.is/cLkBG)
+
+ - [Obese couple banned from taxi service after breaking two cars' suspension.](https://archive.is/WnFti)
