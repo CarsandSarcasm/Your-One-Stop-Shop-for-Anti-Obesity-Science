@@ -323,6 +323,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Poor diet linked to poor gut microbe linked to obesity.](https://archive.is/OXcM8)
 
+ - [Obesity linked to gastrointestinal disorders.](https://archive.is/A23bU)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
