@@ -325,6 +325,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obesity linked to gastrointestinal disorders.](https://archive.is/A23bU)
 
+ - [Dropping life expectancy in the US blamed on obesity.](https://web.archive.org/web/20180620051407/https://www.nejm.org/doi/full/10.1056/NEJMsr043743)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
@@ -475,7 +477,7 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obese couple horrifically neglect disabled child to claim carer benefits for food.](https://archive.is/Qivtc)
 
- - [Obese woman didn't notice she sat on a cat and killed it.](https://archive.is/bhuTu)
+ - [Obese woman didn't notice she sat on a cat and killed it.](https://archive.is/GRwHJ)
 
  - [Obese woman falls through footpath.](https://archive.is/XNuQH)
 
