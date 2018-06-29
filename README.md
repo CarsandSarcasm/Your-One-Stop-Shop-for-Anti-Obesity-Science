@@ -115,6 +115,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Plus sized models lead to increased consumption of unhealthy foods.](https://archive.is/vFf6A)
 
+ - [Normalisation of plus sized models leads to reduced awareness of obesity and its risks.](https://archive.is/QoJeN)
+
  - [Exposure to obesity changes perception of the weight status of others.](https://archive.is/u4XVD)
 
  - [Patients with obesity show reduced memory for others’ body shape.](https://archive.is/PdF8p)
