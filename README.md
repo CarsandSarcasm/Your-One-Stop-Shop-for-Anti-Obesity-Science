@@ -393,6 +393,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obese workers are less productive and need longer rest breaks.](https://archive.is/uSaOS)
 
+ - [Mortuaries installing more oversized fridges for obese bodies.](http://archive.is/EozV4#selection-1115.7-1115.55)
+
 **Miscellaneous**
 
  - [BMI scale underestimates obesity.](https://archive.is/u9v8s)
