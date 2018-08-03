@@ -213,6 +213,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Poor fitness linked to weaker brain fiber and higher dementia risk.](https://archive.is/PWnuN#selection-2653.0-2653.63)
 
+ - [Obesity and diabetes may lead to Alzheimer’s by wearing down the liver.](http://archive.is/K3nqc)
+
 **General health related**
 
  - [Obesity shortens life span regardless of race.](https://archive.is/fTW0q)
@@ -395,6 +397,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Mortuaries installing more oversized fridges for obese bodies.](http://archive.is/EozV4#selection-1115.7-1115.55)
 
+ - [Fat tourists are crippling donkeys used to carry them around Greek tourist island.](https://archive.is/r4Gyz)
+
 **Miscellaneous**
 
  - [BMI scale underestimates obesity.](https://archive.is/u9v8s)
@@ -512,3 +516,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Sisters aged 6 and 8 undergo gastric surgery due to extreme obesity.](https://archive.is/cLkBG)
 
  - [Obese couple banned from taxi service after breaking two cars' suspension.](https://archive.is/WnFti)
+
+ - [Morbidly obese child dies of a heart attack at 10.](http://archive.is/xfHua)
