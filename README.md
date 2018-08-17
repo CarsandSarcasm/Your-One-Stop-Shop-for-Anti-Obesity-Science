@@ -331,6 +331,12 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Dropping life expectancy in the US blamed on obesity.](https://web.archive.org/web/20180620051407/https://www.nejm.org/doi/full/10.1056/NEJMsr043743)
 
+ - [Obesity linked to pelvic organ prolapse.](https://archive.is/CAQwN)
+
+ - [Obesity a major contributor to buried penis syndrome and complications.](https://archive.is/qOQkO)
+
+ - [Obesity linked to increased and recurrent vulvovaginal bacterial infections in women of reproductive age.](https://archive.is/e2P8P)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
