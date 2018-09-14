@@ -524,3 +524,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obese couple banned from taxi service after breaking two cars' suspension.](https://archive.is/WnFti)
 
  - [Morbidly obese child dies of a heart attack at 10.](http://archive.is/xfHua)
+
+ - [Obese woman who went on TV to complain that she was too fat to get a job caught stealing cakes just hours later.](https://archive.fo/noi16)
