@@ -526,3 +526,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Morbidly obese child dies of a heart attack at 10.](http://archive.is/xfHua)
 
  - [Obese woman who went on TV to complain that she was too fat to get a job caught stealing cakes just hours later.](https://archive.fo/noi16)
+
+ - [55 stone man stays in a 4 bed bay in hospital for 5 months and won't leave.](http://archive.is/0GF0t)
