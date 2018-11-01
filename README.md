@@ -365,6 +365,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Healthcare costs of obesity in the US.](https://archive.is/I6zpN)
 
+ - [Economic impact of excess weight in the US exceeds $1.7 trillion.](https://archive.is/7Nwrx)
+
  - [Obesity linked to more sick leave being taken.](https://archive.is/l5cKS)
 
  - [Obesity linked to more sick leave being taken 2.](https://archive.is/IJu2f)
