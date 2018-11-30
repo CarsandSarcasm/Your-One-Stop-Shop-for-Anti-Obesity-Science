@@ -337,6 +337,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obesity linked to increased and recurrent vulvovaginal bacterial infections in women of reproductive age.](https://archive.is/e2P8P)
 
+ - [A quarter of asthma cases in obese children linked to the excess weight.](https://archive.is/sSryb)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
