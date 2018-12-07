@@ -339,6 +339,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [A quarter of asthma cases in obese children linked to the excess weight.](https://archive.is/sSryb)
 
+ - [Body fat levels linked to breast cancer risk in post-menopausal women. Excess body fat increases risk even in normal weight women.](http://archive.is/C2TOJ)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
@@ -532,3 +534,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obese woman who went on TV to complain that she was too fat to get a job caught stealing cakes just hours later.](https://archive.fo/noi16)
 
  - [55 stone man stays in a 4 bed bay in hospital for 5 months and won't leave.](http://archive.is/0GF0t)
+
+ - [133kg woman admits murdering boyfriend by smothering him with her stomach fat.](http://archive.is/axsxk)
