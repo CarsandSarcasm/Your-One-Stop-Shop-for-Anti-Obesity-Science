@@ -211,9 +211,11 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obesity causes inflammation that mimics and causes depression.](https://archive.is/DivtR)
 
- - [Poor fitness linked to weaker brain fiber and higher dementia risk.](https://archive.is/PWnuN#selection-2653.0-2653.63)
+ - [Poor fitness linked to weaker brain fibre and higher dementia risk.](https://archive.is/PWnuN#selection-2653.0-2653.63)
 
  - [Obesity and diabetes may lead to Alzheimer’s by wearing down the liver.](http://archive.is/K3nqc)
+
+ - [Link discovered between excess body fat and brain shrinkage.](https://archive.is/rj2ic)
 
 **General health related**
 
@@ -536,3 +538,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [55 stone man stays in a 4 bed bay in hospital for 5 months and won't leave.](http://archive.is/0GF0t)
 
  - [133kg woman admits murdering boyfriend by smothering him with her stomach fat.](http://archive.is/axsxk)
+
+ - [Obese man rides a horse and laughs as it collapses under him.](https://archive.is/cwHe2)
