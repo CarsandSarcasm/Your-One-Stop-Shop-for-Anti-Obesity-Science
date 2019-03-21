@@ -540,3 +540,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [133kg woman admits murdering boyfriend by smothering him with her stomach fat.](http://archive.is/axsxk)
 
  - [Obese man rides a horse and laughs as it collapses under him.](https://archive.is/cwHe2)
+
+ - [Obese man’s blood turned into thick, milky sludge.](https://archive.is/YqoYA)
