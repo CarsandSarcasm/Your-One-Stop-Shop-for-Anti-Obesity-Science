@@ -217,6 +217,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Link discovered between excess body fat and brain shrinkage.](https://archive.is/rj2ic)
 
+ - [Excessive body fat around the middle linked to smaller brain size.(https://archive.is/Kx1qI)
+
 **General health related**
 
  - [Obesity shortens life span regardless of race.](https://archive.is/fTW0q)
