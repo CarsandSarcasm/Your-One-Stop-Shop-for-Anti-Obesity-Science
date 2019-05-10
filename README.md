@@ -77,7 +77,7 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [ADHD associated with unhealthy diet during pregnancy.](https://archive.is/qSaBF)
 
- - [Umbilical cells from babies of obese mothers show impaired expression of vital genes regulating metabolism.](https://archive.is/7iGXd#selection-885.0-885.106)
+ - [Umbilical cells from babies of obese mothers show impaired expression of vital genes regulating metabolism.](https://archive.is/7iGXd)
 
  - [1/3 of British kids leave primary school obese.](https://archive.is/md26s)
 
@@ -143,7 +143,7 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Intelligence decreases as weight increases.](https://archive.is/jflLn)
 
- - [People naturally find obesity disgusting.](https://i.sli.mg/fmsifb.png)
+ - [Four year olds automatically think fat people are stupid and ugly.](https://archive.is/6MF6q)
 
  - [High saturated fat diet causes brain immune cells to consume neuron connections.](https://archive.is/4v8Vv)
 
@@ -544,3 +544,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obese man rides a horse and laughs as it collapses under him.](https://archive.is/cwHe2)
 
  - [Obese man’s blood turned into thick, milky sludge.](https://archive.is/YqoYA)
+
+ - [Overweight survivor of plane inferno blocked others from escaping in crash, killing 41 people](https://archive.ph/708H4)
