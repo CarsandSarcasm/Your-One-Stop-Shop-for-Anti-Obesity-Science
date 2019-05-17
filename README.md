@@ -546,3 +546,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obese man’s blood turned into thick, milky sludge.](https://archive.is/YqoYA)
 
  - [Overweight survivor of plane inferno blocked others from escaping in crash, killing 41 people](https://archive.ph/708H4)
+
+ - [900-pound Virginia man to be transported to court, possibly after officials cut out his wall](https://archive.is/kuKGz)
