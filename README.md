@@ -548,3 +548,7 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Overweight survivor of plane inferno blocked others from escaping in crash, killing 41 people](https://archive.ph/708H4)
 
  - [900-pound Virginia man to be transported to court, possibly after officials cut out his wall](https://archive.is/kuKGz)
+
+ - [Judge given 6 figure job despite being too fat to work.](https://archive.is/ydHad)
+ 
+ - [The same obese judge deemed too fat to work files discrimination suit](https://archive.is/zlc4a)
