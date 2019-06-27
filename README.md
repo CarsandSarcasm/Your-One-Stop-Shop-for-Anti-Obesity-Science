@@ -136,6 +136,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Being fat makes you stupid.](https://archive.is/7tWBa)
 
  - [Being fat makes you stupid 2.](https://archive.is/zvZzQ)
+ 
+ - [Being fat makes you stupid 3](https://archive.is/kGLva)
 
  - [Obesity linked to more sexually dangerous behaviour.](https://archive.is/C0y8l)
 
