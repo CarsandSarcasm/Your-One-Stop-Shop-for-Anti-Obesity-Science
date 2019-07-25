@@ -221,6 +221,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Excessive body fat around the middle linked to smaller brain size.(https://archive.is/Kx1qI)
 
+ - [Higher body weight can lead to faster brain aging.](https://archive.is/5T3KZ)
+
 **General health related**
 
  - [Obesity shortens life span regardless of race.](https://archive.is/fTW0q)
