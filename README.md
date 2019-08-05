@@ -349,6 +349,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Body fat levels linked to breast cancer risk in post-menopausal women. Excess body fat increases risk even in normal weight women.](http://archive.is/C2TOJ)
 
+ - [Every 12 months of obesity raises cancer risk by four per cent.](https://archive.is/f2qsh)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
