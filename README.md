@@ -421,6 +421,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Fat tourists are crippling donkeys used to carry them around Greek tourist island.](https://archive.is/r4Gyz)
 
+ - [The overall impact of metabolic food waste in the world corresponds to 140.7 gigatons of food waste associated with overweight and obesity.](https://archive.is/UVISw)
+
 **Miscellaneous**
 
  - [BMI scale underestimates obesity.](https://archive.is/u9v8s)
