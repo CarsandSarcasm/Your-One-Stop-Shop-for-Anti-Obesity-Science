@@ -380,6 +380,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Healthcare costs of obesity in the US.](https://archive.is/I6zpN)
 
  - [Economic impact of excess weight in the US exceeds $1.7 trillion.](https://archive.is/7Nwrx)
+ 
+ - [OECD nations spend $310B/year on obesity. Obesity reduces GDP 3.3% and represents 8.4% of healthcare budgets.](https://archive.is/g5mrr)
 
  - [Obesity linked to more sick leave being taken.](https://archive.is/l5cKS)
 
