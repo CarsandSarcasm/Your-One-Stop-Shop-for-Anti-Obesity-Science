@@ -483,6 +483,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Nearly half of America's overweight don't realise they are overweight.](https://archive.is/22kyp)
 
+ - [90% of obese people are in denial about their size and don't think they have a weight problem.](https://archive.is/jdiJz)
+
  - [You can't outrun a bad diet.](http://bjsm.bmj.com/content/49/15/967.long)
 
  - [Congenitally blind men prefer a low waist:hip ratio.](https://archive.is/i0dyC)
