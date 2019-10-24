@@ -351,6 +351,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Every 12 months of obesity raises cancer risk by four per cent.](https://archive.is/f2qsh)
 
+ - [Fat can clog the lungs and airways, not just the heart.](https://archive.is/bKvml)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
@@ -497,7 +499,7 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Obese people across gender and socioeconomic status under-report weight.](https://archive.is/JAyAP)
 
- - [Using "overfat" measurement, 90% of men and 50% of children are obese.](https://archive.is/AOvss#selection-201.0-201.27)
+ - [Using "overfat" measurement, 90% of men and 50% of children are obese.](https://archive.is/AOvss)
 
  - [Higher marital quality linked with lower cardiovascular disease risk factors.](https://archive.is/7tzLg)
 
