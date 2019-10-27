@@ -353,6 +353,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Fat can clog the lungs and airways, not just the heart.](https://archive.is/bKvml)
 
+ - [(Non-alcoholic) fatty livers halt tumour-suppressing protein, increasing risk of cancer.](https://web.archive.org/web/20191021235322/https://www.fiercebiotech.com/research/fatty-livers-halt-tumor-suppressing-protein-increasing-cancer-risk)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
