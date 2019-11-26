@@ -355,6 +355,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [(Non-alcoholic) fatty livers halt tumour-suppressing protein, increasing risk of cancer.](https://web.archive.org/web/20191021235322/https://www.fiercebiotech.com/research/fatty-livers-halt-tumor-suppressing-protein-increasing-cancer-risk)
 
+ - [Flu shot doesn't work as well on obese people. 30 year-old obese have immune cells like 80 year-olds.](https://archive.is/vV7sy)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
