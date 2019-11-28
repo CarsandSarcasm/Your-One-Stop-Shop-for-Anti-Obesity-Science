@@ -442,6 +442,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Discrepancy between reported calorie and exercise figures and reality.](https://archive.is/kqRSn)
 
  - [Discrepancy between reported calorie and exercise figures and reality 2.](https://archive.is/lWgMc)
+ 
+  - [Discrepancy between reported calorie and reality 3. Diabetics require reported intake to be multiplied by 2.5 to reach an accurate number.](https://archive.is/M6adH)
 
  - [Hypothyroidism counts for no more than 5-10lb.](https://archive.is/M4Snf)
 
