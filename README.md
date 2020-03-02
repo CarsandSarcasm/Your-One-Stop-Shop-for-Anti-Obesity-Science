@@ -357,6 +357,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Flu shot doesn't work as well on obese people. 30 year-old obese have immune cells like 80 year-olds.](https://archive.is/vV7sy)
 
+ - [The effects of obesity mirror those of aging.](https://archive.is/hsZ6Y)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
