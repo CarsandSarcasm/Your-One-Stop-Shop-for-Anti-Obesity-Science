@@ -578,3 +578,5 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
  - [Obese woman can't walk had to be zipped into a specially reinforced bag to be carried out of her flat by four paramedics](https://archive.is/5HxwU)
 
  - [Child overfed by mother dies of heart attack at 13.](https://archive.is/KO9L0)
+
+ - [MRI scan reveals a lighter lost in the folds of a patient.](https://archive.is/V0sxe)
