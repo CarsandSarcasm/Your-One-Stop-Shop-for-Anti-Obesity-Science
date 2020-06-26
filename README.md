@@ -223,6 +223,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Higher body weight can lead to faster brain aging.](https://archive.is/5T3KZ)
 
+ - [Belly fat in older women is linked to a 39% higher risk of dementia within 15 years.](https://archive.is/uQk2F)
+
 **General health related**
 
  - [Obesity shortens life span regardless of race.](https://archive.is/fTW0q)
