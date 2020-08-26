@@ -225,6 +225,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [Belly fat in older women is linked to a 39% higher risk of dementia within 15 years.](https://archive.is/uQk2F)
 
+ - [Association between obesity and lower childhood IQ.](https://archive.is/zaFPW)
+
 **General health related**
 
  - [Obesity shortens life span regardless of race.](https://archive.is/fTW0q)
