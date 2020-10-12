@@ -363,6 +363,8 @@ A fully achived and ever expanding list of articles, studies, stories, and [fact
 
  - [The effects of obesity mirror those of aging.](https://archive.is/hsZ6Y)
 
+ - [Indices of central fatness including waist circumference, waist-to-hip ratio, waist-to-height ratio, waist-to-thigh ratio, body adiposity index, and A body shape index, independent of overall adiposity, were positively and significantly associated with a higher all cause mortality risk.](https://archive.is/K58Yw)
+
 **Effects on others**
 
  - [Obese organs are no good for donation.](https://archive.is/mPEF2)
